@@ -4,7 +4,7 @@ _Meu nome é Gabryel_
 
 _estou aprendendo com a [Alura]
 
-### Para emtrar em contato comigo
+### Para entrar em contato comigo
 
 ### gabryel.silva.rodrigues@escola.pr.gov.br 📫
 
