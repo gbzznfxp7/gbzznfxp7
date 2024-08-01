@@ -6,7 +6,7 @@ _estou aprendendo com a [Alura]
 
 ### Para emtrar em contato comigo
 
-gabryel.silva.rodrigues@escola.pr.gov.br 📫
+### gabryel.silva.rodrigues@escola.pr.gov.br 📫
 
-@gbzznfxp7
+### @gbzznfxp7
 
